@@ -6,3 +6,5 @@
 [material e621](https://material-e621.avoonix.com/)  
 [dogeub](https://info.eminescusm.ro/)  
 [alt dogeub](https://info.axsetubal.pt/)
+[cstimer](https://cstimer.net/)
+[penguinmod](https://penguinmod.com/)
