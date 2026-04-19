@@ -1,6 +1,6 @@
 # cloud-chat
-[google](https://google.com)
-[e6](https://e621.net/)
-[material](https://material-e621.avoonix.com/)
-[doge1](https://info.eminescusm.ro/)
-[doge2](https://info.axsetubal.pt/)
+[google](https://google.com)  
+[e621](https://e621.net/)  
+[material e621](https://material-e621.avoonix.com/)  
+[dogeub](https://info.eminescusm.ro/)  
+[alt dogeub](https://info.axsetubal.pt/)  
