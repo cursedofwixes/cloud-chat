@@ -1,0 +1,8 @@
+# link storage  
+[google](https://google.com)  
+[wikipedia](https://www.wikipedia.org/)  
+[hydrahd](https://hydrahd.ru/) [other movie sites](https://github.com/fmhy/FMHY/wiki/Streaming)  
+[e621](https://e621.net/)  
+[material e621](https://material-e621.avoonix.com/)  
+[dogeub](https://info.eminescusm.ro/)  
+[alt dogeub](https://info.axsetubal.pt/)
