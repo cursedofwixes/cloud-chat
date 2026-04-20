@@ -8,6 +8,7 @@
 [alt dogeub](https://info.axsetubal.pt/)  
 [rammerhead](https://rammer.nana-1.hotelconsuladoinn.com/)  
 [alt rammer](https://learn.math.vidalinux.com/)  
+[boredom v2](https://christianprince.bostoncareercounselor.com/)
 [cstimer](https://cstimer.net/)  
 [scratch](https://scratch.mit.edu/)  
 [penguinmod](https://penguinmod.com/)  
